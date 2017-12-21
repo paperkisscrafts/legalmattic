@@ -18,7 +18,7 @@ Paper Kiss Crafts (“**Paper Kiss Crafts**”) operates two websites [paperkiss
 
 ### Contact
 
-If you have questions about deleting or correcting your personal data email [artists@paperkisscrafts.com](mailto://artists@paperkisscrafts.com).
+If you have questions about deleting or correcting your personal data send an email to artists@paperkisscrafts.com. You may also send us a message via the contact forum on the bottom of this page. 
 
 ### Attribution
 
